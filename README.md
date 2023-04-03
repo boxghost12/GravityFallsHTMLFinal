@@ -1,2 +1,0 @@
-# GravityFallsHTMLFinal
-Gravity Falls Lore
